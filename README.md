@@ -1,12 +1,14 @@
 # introduction
-RAYNE . ARCHER
+ARCHER
+
+I DO NOT LIKE BEING CALLED ANYTHING OTHER THEN WIND ARCHER OR ARCHER.
    
    SHE/THEY .
    
 I do take names from characters i have special interests in, meaning i change my second name i go by ALOT.
   
    
-   My main name is Rayne! Do not make jokes of my name please. Ive grown to like it, And i do not want to go by a different name
+   My main name is Archer! Do not make jokes of my name please. Ive grown to like it, And i do not want to go by a different name
 
 
 My special interests are mainly cars and CRK!
