@@ -1,6 +1,8 @@
 # introduction
 ARCHER / CHANCE
 
+Fourteen, Anxiety disorder along with using a screenreader + im half deaf.
+
 I DO NOT LIKE BEING CALLED ANYTHING OTHER THEN CHANCE OR ARCHER.
    
    SHE/THEY .
