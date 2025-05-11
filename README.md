@@ -1,30 +1,25 @@
 # introduction
-ARCHER / CHANCE
+🂱 🃜 🃚 🃖 🃁 🂭 🂺
 
-Fourteen, Anxiety disorder along with using a screenreader + im half deaf.
+wont you take a chance at gambling?
 
-I DO NOT LIKE BEING CALLED ANYTHING OTHER THEN CHANCE OR ARCHER.
-   
-   SHE/THEY .
-   
-I do take names from characters i have special interests in, meaning i change my second name i go by ALOT.
-  
-   
-   My main name is Archer or Chance! Do not make jokes of my name please. Ive grown to like it, And i do not want to go by a different name
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
+archer ♰ chance
 
-My special interests are mainly cars and CRK!
-  
-   I am mainly near docks with friends on ponytown!
+   i am an avid forsaken / crk fan + i am extremely overprotective over my special interests and hyperfixations
 
-I am usually AFK.
+ ♰    i am autistic, meaning i do need tonetags depending on situation. as i do not understand tone specifically
 
+   yes i have alot of fictkins, i gain them when i specifically like a character. some of them are coping links aswell
 
-   
-   
-   SPECIAL SHOUT OUTS TO..
+ ♰ deepending on situation, i may tend to go silent as i cannot deal with situations fully.
 
-My boyfriend, Who isnt on PT.
-And my friends who i cherish dearly, Even if i do not show it
+ i am a light shipper, rarepairshipper, and a non-problematic comshipper. i do not ship illegal ships, i extremely do not like illegal ships.
 
----------------------------------------
+ ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+
+i rarely follow accounts back, and i am taken. please do not flirt with me.
+
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+ 
