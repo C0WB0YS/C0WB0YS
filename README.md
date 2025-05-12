@@ -1,11 +1,11 @@
 # introduction
 🂱 🃜 🃚 🃖 🃁 🂭 🂺
 
-wont you take a chance at gambling?
+The malice of HATE. AND NEGATIVITY.
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-archer ♰ chance
+archer ♰ 1x1
 
    i am an avid forsaken / crk fan + i am extremely overprotective over my special interests and hyperfixations
 
