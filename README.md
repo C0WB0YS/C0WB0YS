@@ -9,7 +9,7 @@ archer ♰ 1x1 ♰ mafioso
 
        genderfluid ♰ , yes i am german. no i do not give a fuck if you make nazi jokes around me.
 
-   i am an avid forsaken / crk fan + i am extremely overprotective over my special interests and hyperfixations
+   i am an avid forsaken / scp fan + i am extremely overprotective over my special interests and hyperfixations
 
  ♰    i am autistic, meaning i do need tonetags depending on situation. as i do not understand tone specifically
 
