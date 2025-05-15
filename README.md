@@ -5,7 +5,7 @@ The malice of HATE. AND NEGATIVITY.
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-archer ♰ 1x1
+archer ♰ 1x1 ♰ mafioso
 
        genderfluid ♰ , yes i am german. no i do not give a fuck if you make nazi jokes around me.
 
