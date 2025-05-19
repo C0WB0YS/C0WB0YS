@@ -19,7 +19,7 @@ archer ♰ guest ♰ vorhees/jason
 
  ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-i rarely follow accounts back, and i am taken. please do not flirt with me.
+i rarely follow accounts back
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
  
