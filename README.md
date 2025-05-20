@@ -5,7 +5,7 @@ The malice of HATE. AND NEGATIVITY.
 
 ˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
- guest ♰ vorhees/jason
+ mafioso ♰ jason
 
        genderfluid ♰ , yes i am german. no i do not give a fuck if you make nazi jokes around me.
 
