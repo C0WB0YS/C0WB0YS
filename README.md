@@ -1,39 +1,10 @@
+THE SPAWN BLESSES US! DON'T YOU AGREE, AZURE?
 
-┄ ─    𐎟    ┄ ─ ┄─┄─┄─┄─┄ ─ ┄    𐎟    ─
+THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
 
-BY ORDER OF THE OVERSEER COUNCIL
-The following file describes a CLASS VIII Cognitohazard, And is a level 5/3000 Classified. Unauthorized access is forbidden.
+---------------------------------------------------
 
-╰┈➤ THE SCP FOUNDATION.
-
-┄ ─    𐎟    ┄ ─ ┄─┄─┄─┄─┄ ─ ┄    𐎟    ─
-
-Authenticating . . .
-. . .
-
-. . .
-
-. . .
-
-Welcome, Overseer! [ 05-3 ]
-
-Please enter your personal PIN To commence the classified data retrevial.
-
-Loading File. . .
-
-. . .
-
-. . .
-
-. . .
-
-Authorization Granted, Welcome Overseer.
-
-┄ ─    𐎟    ┄ ─ ┄─┄─┄─┄─┄ ─ ┄    𐎟    ─
-
-L O G - 3 4 5  . DATE : MAY 20TH, 2025.
-
-   Mafioso 𓆩⚝𓆪 Taph
+   TwoTime 𓆩⚝𓆪 Taph
 
    Genderfluid . Aroace : Do not flirt with me, I am not looking to hook up with you mate.
 
@@ -50,11 +21,7 @@ Yes im 14, I am not as sensitive and i do not get uncomfortable with alot of thi
 
 ┄ ─    𐎟    ┄ ─ ┄─┄─┄─┄─┄ ─ ┄    𐎟    ─
 
-FILE ACCESS REVOKED
-
-LOGGING YOU OUT . . .
-
-. . .
+THE SPAWN IS RIGHT, THERE WORD IS THE CORRECT ANSWER TO THIS WORLD.
 
 . . .
 
