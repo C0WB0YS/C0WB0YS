@@ -19,13 +19,8 @@ I fictkin alot of characters, Coping links, Etc. My heavy kins are just characte
 
 Yes im 14, I am not as sensitive and i do not get uncomfortable with alot of things beside NSFW ! Please do not mention NSFW Heavily around me.
 
-┄ ─    𐎟    ┄ ─ ┄─┄─┄─┄─┄ ─ ┄    𐎟    ─
+┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
 
-THE SPAWN IS RIGHT, THERE WORD IS THE CORRECT ANSWER TO THIS WORLD.
+THE SPAWN IS RIGHT, THEIR WORD IS THE CORRECT ANSWER TO THIS WORLD.
 
-. . .
-
-. . .
-
-GOODBYE, OVERSEER.
- 
+DO NOT DOUBT THEIR WORDS, THE SPAWN REQUIRES BLOOD /DRAWN/.
