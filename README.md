@@ -1,5 +1,3 @@
-THE SPAWN BLESSES US! DON'T YOU AGREE, AZURE?
-
 ![Untitled1069_20250529205944](https://github.com/user-attachments/assets/51d95602-2481-4080-a927-5fc31db41315)
 
 THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
@@ -35,6 +33,8 @@ When i get comfy with someone, I tend to be very talkative and annoying. If it g
 I am not a confrontational person, And i am not willing to have another relationship due to the fact ive had bad relationships in the past !
 
 I tend to be very silent at first !
+
+![Despite everything it's still you](https://github.com/user-attachments/assets/54712669-ce52-4c1d-a7be-3fa7cca3c515)
 
 . . DNI . .
 
