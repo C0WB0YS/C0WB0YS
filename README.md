@@ -4,10 +4,11 @@ THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
 
 ---------------------------------------------------
 
-   TwoTime 𓆩⚝𓆪 Taph
+   TwoTime 𓆩⚝𓆪 Noli
 
-   Genderfluid . Aroace : Do not flirt with me, I am not looking to hook up with you mate.
+   Genderfluid . Lesbian : Do not flirt with me, I am not looking to hook up with you mate.
 
+Taken by the most kindest girl ever <3 ; Ily Z - 5/28/25
    
 Very Avid SCP Fan and Forsaken fan, No i do not entirely read the lore on some parts of these fandoms. 
 
