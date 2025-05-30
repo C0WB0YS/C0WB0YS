@@ -1,5 +1,7 @@
 THE SPAWN BLESSES US! DON'T YOU AGREE, AZURE?
 
+https://cdn.discordapp.com/attachments/1148748896466636801/1377813724655652915/Untitled1069_20250529205944.png?ex=683a5486&is=68390306&hm=09ebbccc73303e746b0b437bcb5d06448242381fca33fe10176e61126ea92b9a&
+
 THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
 
 ---------------------------------------------------
