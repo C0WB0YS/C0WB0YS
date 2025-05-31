@@ -4,13 +4,13 @@ THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
 
 ---------------------------------------------------
 
-   TwoTime 𓆩⚝𓆪 Azure
+   Chance 𓆩⚝𓆪 Azure
 
    Genderfluid . Lesbian : Do not flirt with me, I am not looking to hook up with you mate.
 
 Taken by the most kindest girl ever <3 ; Ily Z - 5/28/25
    
-Very Avid SCP Fan and Forsaken fan, No i do not entirely read the lore on some parts of these fandoms. 
+Very Avid Forsaken fan, No i do not entirely read the lore on some parts of this fandom. 
 
 I am German, No i do not care if you make nazi jokes around me. Just tone it down a bit depending if i am having it or not.
 
