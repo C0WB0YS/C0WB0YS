@@ -1,17 +1,17 @@
-![Untitled1072_20250531194907](https://github.com/user-attachments/assets/6c1ea5ae-9232-4d0b-9d05-67d7eb748736)
+![Untitled1076_20250601121600](https://github.com/user-attachments/assets/f0a6722b-1de5-437b-9e2e-14d54ab29f8c)
 
 
-THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
+ticking time on the clock, a wonderous sight of time.
 
 ---------------------------------------------------
 
-   Chance 𓆩⚝𓆪 Azure
+  Dante 𓆩⚝𓆪 Azure
 
    Genderfluid . Lesbian : Do not flirt with me, I am not looking to hook up with you mate.
 
 Taken by the most kindest girl ever <3 ; Ily Z - 5/28/25
    
-Very Avid Forsaken fan, No i do not entirely read the lore on some parts of this fandom. 
+Very Avid Limbus company / Forsaken fan, No i do not entirely read the lore on some parts of these fandoms. 
 
 I am German, No i do not care if you make nazi jokes around me. Just tone it down a bit depending if i am having it or not.
 
@@ -35,7 +35,7 @@ I am not a confrontational person, And i am not willing to have another relation
 
 I tend to be very silent at first !
 
-![Despite everything it's still you](https://github.com/user-attachments/assets/54712669-ce52-4c1d-a7be-3fa7cca3c515)
+![Untitled1072_20250601121040](https://github.com/user-attachments/assets/9655580f-965c-449b-b8d9-8740e24779f1)
 
 . . DNI . .
 
