@@ -4,69 +4,74 @@
 
 If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
 
----------------------------------------------------
+✦ ✦ ✦ ✦ ✦ ✦ ✦
 
-  Dante 𓆩⚝𓆪 Azure
+Azure ✦ Chance
 
-   Genderfluid . Lesbian : Do not flirt with me, I am not looking to hook up with you mate.
+Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
-Taken by the most kindest girl ever <3 ; Ily Z - 5/28/25
-   
-Very Avid Limbus company / Forsaken fan, No i do not entirely read the lore on some parts of these fandoms. 
+  No, I do not give a fuck if you " Touch " Me. TD/CD Just mocks a real thing. 
 
+I am neutral about ships, But if you go out of your way to make any of my friends uncomfortable. I will go after you, I am hyperfixating over Azurechance and Twochance at the time. DoubleFedora Fan's DNI. Especially the weirdo ones.
+
+Yes, I might be untalkative at times. Other times i might be talkative. I struggle alot with emotions and tones, No i do not require tonetags. 
+
+I use a Screenreader at times, Meaning i CANNOT read font's. If you interact with me and you use font's, I will ignore you and not reply. It is not out of pure hatred, It is just i am using a screen reader at the time.
+
+SHOUTOUTS TO!!
+
+My Girlfriend <3 !!
+
+Candie
+
+Felix
+
+Scruffy
+
+Xian's Tavern
+
+Rift Rangers
+
+And my friends just for talking to me
+ 
 ![20250601_213054](https://github.com/user-attachments/assets/fc3c3869-e3ac-4a1b-85c3-ca6e808f0949)
 
-I am German, No i do not care if you make nazi jokes around me. Just tone it down a bit depending if i am having it or not.
+✦ ✦ ✦ ✦ ✦ ✦
 
-I am Autistic, Meaning i can get hyper very easily. I do go silent at times depending on situation as i can not understand tone at times depending on mood.
+INT!! ( MY FANDOMS )
 
-I fictkin alot of characters, Coping links, Etc. My heavy kins are just characters i hyperfixate more on. 
+Forsaken, LC, BT, 9-1-1, The rookie, LHG, Etc
 
-Yes im 14, I am not as sensitive and i do not get uncomfortable with alot of things beside NSFW ! Please do not mention NSFW Heavily around me.
+THIN ICE
 
-┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
+Toxic Fans of forsaken.
 
-. . BYI / DNI . .
+DW ( Non-Weird ones. )
 
-Before interacting with me, Keep in mind i have Generalized Anxiety Disorder. Meaning i cannot start conversations normally.
 
-I do however, Allow cuddles. Or people to sit with me. Though i do get annoyed when someone covers me. It is apart of my boundaries.
+DNI
 
-When i get comfy with someone, I tend to be very talkative and annoying. If it gets too much, Please tell me to tone it down ! Otherwise i will not know at all.
-
-I am not a confrontational person, And i am not willing to have another relationship due to the fact ive had bad relationships in the past !
-
-I tend to be very silent at first !
-
-. . DNI . .
-
-FANDOMS
+Basic DNI
 
 Hazbin Hotel
 
 Helluva Boss
 
-Dandys World
-
-JJK [ Thin Ice ]
-
-TCOAAL
-
-Genshin Impact
-
-Honkai Starrail
-
-Wuthering Waves
-
-FullMetal Alchemist
-
-And any other toxic fandom i did not list.
-
-GENERAL
+DoubleFedora Fan's ( Weird ones. )
 
 Proshippers
 
 Darkshippers
+
+GI
+
+HSR
+
+JJK
+
+WUWA
+
+FullMetal Alchemist
 
 Groomers
 
@@ -102,8 +107,6 @@ MapPrides
 
 Zoophiles
 
-----------------------------------------------------------------
 
-THE SPAWN IS RIGHT, THEIR WORD IS THE CORRECT ANSWER TO THIS WORLD.
 
-DO NOT DOUBT THEIR WORDS, THE SPAWN REQUIRES BLOOD /DRAWN/.
+
