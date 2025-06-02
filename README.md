@@ -38,8 +38,6 @@ I am not a confrontational person, And i am not willing to have another relation
 
 I tend to be very silent at first !
 
-![20250601_213104](https://github.com/user-attachments/assets/206b2267-13ac-4a1e-8b75-23e94ae2714c)
-
 . . DNI . .
 
 FANDOMS
