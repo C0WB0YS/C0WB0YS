@@ -1,7 +1,8 @@
-![Untitled1076_20250601121600](https://github.com/user-attachments/assets/f0a6722b-1de5-437b-9e2e-14d54ab29f8c)
+
+![20250601_213115](https://github.com/user-attachments/assets/6ac4130b-2a22-4243-a030-1bf7934f13a4)
 
 
-ticking time on the clock, a wonderous sight of time.
+If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
 
 ---------------------------------------------------
 
@@ -12,6 +13,8 @@ ticking time on the clock, a wonderous sight of time.
 Taken by the most kindest girl ever <3 ; Ily Z - 5/28/25
    
 Very Avid Limbus company / Forsaken fan, No i do not entirely read the lore on some parts of these fandoms. 
+
+![20250601_213054](https://github.com/user-attachments/assets/fc3c3869-e3ac-4a1b-85c3-ca6e808f0949)
 
 I am German, No i do not care if you make nazi jokes around me. Just tone it down a bit depending if i am having it or not.
 
@@ -35,7 +38,7 @@ I am not a confrontational person, And i am not willing to have another relation
 
 I tend to be very silent at first !
 
-![Untitled1072_20250601121040](https://github.com/user-attachments/assets/9655580f-965c-449b-b8d9-8740e24779f1)
+![20250601_213104](https://github.com/user-attachments/assets/206b2267-13ac-4a1e-8b75-23e94ae2714c)
 
 . . DNI . .
 
