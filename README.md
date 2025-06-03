@@ -53,6 +53,8 @@ DNI
 
 Basic DNI
 
+Regretevator Fandom - sorry guys, i just do not like being shipped w/ poob
+
 Hazbin Hotel
 
 Helluva Boss
