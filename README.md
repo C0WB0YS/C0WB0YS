@@ -7,13 +7,13 @@ If you ship me with candie, Do not. I am taken. So is candie. Our partners do no
 
 ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
-Azure ✦ Chance
+Azure ✦ Noli
 
 Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
   No, I do not give a fuck if you " Touch " Me. TD/CD Just mocks a real thing. 
 
-I am neutral about ships, But if you go out of your way to make any of my friends uncomfortable. I will go after you, I am hyperfixating over Azurechance and Twochance at the time. DoubleFedora Fan's DNI. Especially the weirdo ones.
+I am neutral about ships, But if you go out of your way to make any of my friends uncomfortable. I will go after you, I am hyperfixating over Azurechance and Twochance at the time. DoubleFedora Fan's DNI. the weirdo ones.
 
 Yes, I might be untalkative at times. Other times i might be talkative. I struggle alot with emotions and tones, No i do not require tonetags. 
 
@@ -35,9 +35,10 @@ Rift Rangers
 
 And my friends just for talking to me
  
-![20250601_213054](https://github.com/user-attachments/assets/fc3c3869-e3ac-4a1b-85c3-ca6e808f0949)
+![☕️ Ｃｏｆｆｅｅ (@HotCoffeArt) on X](https://github.com/user-attachments/assets/1590e46a-5d72-4645-bb04-f9176b2642be)
 
 ✦ ✦ ✦ ✦ ✦ ✦
+
 
 INT!! ( MY FANDOMS )
 
