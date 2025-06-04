@@ -1,7 +1,5 @@
 
-
-![20250601_213115](https://github.com/user-attachments/assets/dfd83eff-e1e5-4750-bdaf-9c49007b4fa7)
-
+![Untitled1069_20250529205944](https://github.com/user-attachments/assets/63edff84-7919-42c1-bd48-3e702e09df47)
 
 If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
 
@@ -19,7 +17,9 @@ Yes, I might be untalkative at times. Other times i might be talkative. I strugg
 
 I use a Screenreader at times, Meaning i CANNOT read font's. If you interact with me and you use font's, I will ignore you and not reply. It is not out of pure hatred, It is just i am using a screen reader at the time.
 
-SHOUTOUTS TO!!
+[twochance__jjj jj jj jj joke abt mlm ik theyre nonbinary psl (T_T)](https://github.com/user-attachments/assets/3644074f-c073-4a33-82b8-717bf07c0984)
+
+SHOUTOUTS TO ! ! !
 
 My Girlfriend <3 !!
 
@@ -34,8 +34,6 @@ Xian's Tavern
 Rift Rangers
 
 And my friends just for talking to me
- 
-![20250601_213054](https://github.com/user-attachments/assets/df6ebd55-b1a0-4008-b8c0-78b2afea7b5b)
 
 ✦ ✦ ✦ ✦ ✦ ✦
 
