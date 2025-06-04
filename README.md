@@ -1,13 +1,13 @@
 
-![Noli - upcoming Forsaken killer](https://github.com/user-attachments/assets/25762a07-1e0c-45fe-ae58-cae291b02afe)
 
+![20250601_213115](https://github.com/user-attachments/assets/dfd83eff-e1e5-4750-bdaf-9c49007b4fa7)
 
 
 If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
 
 ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
-Azure ✦ Noli
+Azure ✦ Wrath
 
 Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
