@@ -1,5 +1,6 @@
 
-![20250601_213115](https://github.com/user-attachments/assets/6ac4130b-2a22-4243-a030-1bf7934f13a4)
+![Noli - upcoming Forsaken killer](https://github.com/user-attachments/assets/25762a07-1e0c-45fe-ae58-cae291b02afe)
+
 
 
 If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
