@@ -11,7 +11,7 @@ Azure ✦ Boss twotime
 
 Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
-  No, I do not give a fuck if you " Touch " Me. TD/CD Just mocks a real thing. 
+  No, I do not give a fuck if you " Touch " Me. TD/CD Just mocks a real thing. Because i have a crowd discomfort IRL, TD/CD Just mocks real things.
 
 I am neutral about ships, But if you go out of your way to make any of my friends uncomfortable. I will go after you, I am hyperfixating over Azurechance and Twochance at the time. DoubleFedora Fan's DNI. the weirdo ones.
 
