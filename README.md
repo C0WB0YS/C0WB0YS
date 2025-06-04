@@ -35,7 +35,7 @@ Rift Rangers
 
 And my friends just for talking to me
  
-![☕️ Ｃｏｆｆｅｅ (@HotCoffeArt) on X](https://github.com/user-attachments/assets/1590e46a-5d72-4645-bb04-f9176b2642be)
+![20250601_213054](https://github.com/user-attachments/assets/df6ebd55-b1a0-4008-b8c0-78b2afea7b5b)
 
 ✦ ✦ ✦ ✦ ✦ ✦
 
