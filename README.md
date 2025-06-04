@@ -17,7 +17,7 @@ Yes, I might be untalkative at times. Other times i might be talkative. I strugg
 
 I use a Screenreader at times, Meaning i CANNOT read font's. If you interact with me and you use font's, I will ignore you and not reply. It is not out of pure hatred, It is just i am using a screen reader at the time.
 
-[twochance__jjj jj jj jj joke abt mlm ik theyre nonbinary psl (T_T)](https://github.com/user-attachments/assets/3644074f-c073-4a33-82b8-717bf07c0984)
+![twochance__jjj jj jj jj joke abt mlm ik theyre nonbinary psl (T_T)](https://github.com/user-attachments/assets/0d07f251-a70d-4b70-9581-ec58bb725c66)
 
 SHOUTOUTS TO ! ! !
 
