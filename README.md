@@ -5,7 +5,7 @@ If you ship me with candie, Do not. I am taken. So is candie. Our partners do no
 
 ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
-Azure ✦ Boss twotime
+ITrapped ✦ Boss twotime
 
 Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
