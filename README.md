@@ -1,5 +1,5 @@
 
-![Untitled1069_20250529205944](https://github.com/user-attachments/assets/63edff84-7919-42c1-bd48-3e702e09df47)
+![ichance or whatever (1)](https://github.com/user-attachments/assets/a34ee6e4-ec3c-48d5-b3d9-d22c79238e34)
 
 If you ship me with candie, Do not. I am taken. So is candie. Candies partner does not play PT, Mine does. And i love my girlfriend.
 
@@ -17,7 +17,7 @@ Yes, I might be untalkative at times. Other times i might be talkative. I strugg
 
 I use a Screenreader at times, Meaning i CANNOT read font's. If you interact with me and you use font's, I will ignore you and not reply. It is not out of pure hatred, It is just i am using a screen reader at the time.
 
-![twochance__jjj jj jj jj joke abt mlm ik theyre nonbinary psl (T_T)](https://github.com/user-attachments/assets/0d07f251-a70d-4b70-9581-ec58bb725c66)
+![Screenshot 2025-06-07 112424](https://github.com/user-attachments/assets/94021ddc-1c58-458e-b0e4-7dfa8a0df32b)
 
 SHOUTOUTS TO ! ! !
 
