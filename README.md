@@ -1,7 +1,7 @@
 
 ![Untitled1069_20250529205944](https://github.com/user-attachments/assets/63edff84-7919-42c1-bd48-3e702e09df47)
 
-If you ship me with candie, Do not. I am taken. So is candie. Our partners do not play PT, And i love my girlfriend.
+If you ship me with candie, Do not. I am taken. So is candie. Candies partner does not play PT, Mine does. And i love my girlfriend.
 
 ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
