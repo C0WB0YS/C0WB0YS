@@ -1,5 +1,6 @@
 
-![ichance or whatever (1)](https://github.com/user-attachments/assets/a34ee6e4-ec3c-48d5-b3d9-d22c79238e34)
+![forsaken - chance and itrapped ( art made by @methedller on X )](https://github.com/user-attachments/assets/08dc3885-f0ab-47f3-93bb-9c8344d11c9e)
+
 
 If you ship me with candie, Do not. I am taken. So is candie. Candies partner does not play PT, Mine does. And i love my girlfriend.
 
