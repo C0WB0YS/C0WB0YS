@@ -25,6 +25,10 @@ my awesome irl gf :3 :
 
 oh em gee hii pretty !! you were my bestfriend before the fact we are now dating, i cannot express how much i love you and how much you love me for being myself despite the fact i have fictkins and coping links. though the jokes we make i cannot say here, the jokes you make alot, do make me laugh. and you are very very pretty to me <3, and i look forward to the times we video call on snapchat because i genuinely laugh at your mic cutting out
 
+CANDIE :
+
+hi you FREAK. A BIGGIE. anyways you are very very cool and special 2 me :3 i genuinely laugh so mcuh when im around you, and i genuinely see you as a comfort and a close friend of mine. i've had bad days sometimes, and your jokes found a way to make me laugh broski. never stop doing what yiu do bro, oh and since the day we originally met i was so anxious to talk to you at first bro but ily broski /p
+
 the labling spec trio :
 
 oh em gee hi guys!! ever since the day we became the labing spec trio, anon whisp trio, whatever, ive gotten a good laugh out of the jokes we've made! and its quite rare for me to laugh online, but i have deadass laughed at the jokes we make and i look quite forward alot to hanging out w you two !1! like everyday because you two r very silly and very very funny ! i love you both platonically
