@@ -5,7 +5,7 @@ If you ship me with candie, Do not. I am taken. So is candie. Candies partner do
 
 ✦ ✦ ✦ ✦ ✦ ✦ ✦
 
-ITrapped ✦ Boss twotime
+ITrapped ✦ Roblox
 
 Interact with care and or caution around me, I will have IWEC In some of my skins. Just interact carefully with me.
 
