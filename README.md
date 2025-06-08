@@ -7,4 +7,4 @@ If you ship me with candie, Do not. I am taken. So is candie. Candies partner do
 
 ITrapped ✦ Roblox
 
-[IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing) ---- [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)
+【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)  】　
