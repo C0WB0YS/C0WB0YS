@@ -2,7 +2,9 @@
 ![forsaken - chance and itrapped ( art made by @methedller on X )](https://github.com/user-attachments/assets/08dc3885-f0ab-47f3-93bb-9c8344d11c9e)
 
 ------------------------------------------------------------------------------------
-ROBLOX/ITRAPPED + 007N7
+007N7 / ITRAPPED
+
+   yes i ship onesided ichance.
 
   hyperactive due to autism -- will not remember alot of stuff afterwards
 
