@@ -1,4 +1,4 @@
-![download (9)](https://github.com/user-attachments/assets/491716b2-4af0-4af0-8393-a1e178a0c228)
+![Chance](https://github.com/user-attachments/assets/d281a9f2-742d-4582-824a-cb3f33c91ab0)
 
 ------------------------------------------------------------------------------------
 ELLERNATE / CHANCE + ITRAPPED
