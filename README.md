@@ -4,7 +4,7 @@
 ------------------------------------------------------------------------------------
 007N7 / ITRAPPED
 
-   yes i ship onesided ichance.
+   yes i ship onesided ichance + twosided IEllernate
 
   hyperactive due to autism -- will not remember alot of stuff afterwards
 
