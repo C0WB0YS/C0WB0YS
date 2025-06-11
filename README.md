@@ -2,9 +2,9 @@
 ![roblox_may_madness_2012_ellernate____art_trade_by_1kiikoiwassad1_djepb3q-350t](https://github.com/user-attachments/assets/16fffce9-dadb-40e6-8552-4322e5fbd326)
 
 ------------------------------------------------------------------------------------
-CHANCE / ELLERNATE + ITRAPPED
+ELLERNATE / CHANCE
 
-chances my preferred name
+Ellernates my preferred name
 
    yes i ship onesided ichance + twosided IEllernate
 
