@@ -22,8 +22,3 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 
 ![ellernate_card_v2_by_arceusdon_dgdf8ox-fullview](https://github.com/user-attachments/assets/9d01064d-459a-4f33-9b46-2f793aee9a1e)
 
-
-
-![6385040e61a71553a670b0dbc3883079](https://github.com/user-attachments/assets/6c5b5d4d-d95b-4a79-b1ba-d86f773391fd)
-
-
