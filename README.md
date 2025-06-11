@@ -15,4 +15,4 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 
 【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)   】　
 
-![_Please stop saying dumbass things, you're not even making sense!_ 🤓🤓](https://github.com/user-attachments/assets/6c9557d3-fc42-40ef-993c-1d969a311fa6)
+![Chance](https://github.com/user-attachments/assets/446a620c-1f73-40eb-9103-09ff3010cc28)
