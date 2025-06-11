@@ -1,9 +1,9 @@
 ![Chance](https://github.com/user-attachments/assets/d281a9f2-742d-4582-824a-cb3f33c91ab0)
 
 ------------------------------------------------------------------------------------
-ELLERNATE / CHANCE + ITRAPPED
+CHANCE / ELLERNATE + ITRAPPED
 
-ellernates my preferred name
+chances my preferred name
 
    yes i ship onesided ichance + twosided IEllernate
 
