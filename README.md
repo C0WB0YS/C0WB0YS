@@ -15,6 +15,5 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 
 【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)   】　
 
-![credits @_colinv on tiktok](https://github.com/user-attachments/assets/391476dd-e85a-4450-8fd6-8bafc5736579)
-
+![FACELESS_MAN (@FACELES88544523) on X](https://github.com/user-attachments/assets/4501caa5-8687-47b3-a462-bf587d116c69)
 
