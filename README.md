@@ -8,11 +8,9 @@ ELLERNATE / CHANCE
 
 Ellernates my preferred name
 
+transgender / genderfluid .
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Savate&size=75&pause=100&color=960808&vCenter=true&multiline=true&width=3800&height=400&lines=Suffering+is+all+anyone+will+ever+know...;Shouldn't+have+tried+to+get+rid+of+me.;You+took+the+fall%2C+now+you+take+the+blade.;Unfortunately%2C+this+is+the+end+of+the+line+for+you.+-+Ellernate%2C+Roblox+Hacker)](https://git.io/typing-svg)
-
-   yes i ship onesided ichance + twosided IEllernate
-
-  hyperactive due to autism -- will not remember alot of stuff afterwards
 
 huge memory gaps, they are longterm. meaning i will not remember people or things sometimes
 
