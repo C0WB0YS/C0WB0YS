@@ -2,11 +2,11 @@
 ![roblox_may_madness_2012_ellernate____art_trade_by_1kiikoiwassad1_djepb3q-350t](https://github.com/user-attachments/assets/16fffce9-dadb-40e6-8552-4322e5fbd326)
 
 ------------------------------------------------------------------------------------
-ELLERNATE / CHANCE
+ELLERNATE / LIAM + CHANCE
 
       yes i have tier 4, no i will not let you use it unless i am friends with you. 
 
-Ellernates my preferred name
+Ellernate + Liam are preferred
 
 genderfluid ?? ;; lesbian
 
