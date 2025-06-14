@@ -1,5 +1,5 @@
 
-![roblox_may_madness_2012_ellernate____art_trade_by_1kiikoiwassad1_djepb3q-350t](https://github.com/user-attachments/assets/16fffce9-dadb-40e6-8552-4322e5fbd326)
+![Despite everything it's still you (1)](https://github.com/user-attachments/assets/47ef2e8f-2b96-4201-808c-07bf0c281606)
 
 ------------------------------------------------------------------------------------
 ELLERNATE / JOHN DOE + WHISKEY
@@ -18,7 +18,5 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 
 【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)   】　
 
-![Roblox Caleb244 and iTrapped __ May Madness 2012](https://github.com/user-attachments/assets/45927ec3-9306-4058-8f35-29daf7791015)
-
-![ellernate_card_v2_by_arceusdon_dgdf8ox-fullview](https://github.com/user-attachments/assets/9d01064d-459a-4f33-9b46-2f793aee9a1e)
+![A human being whose original human part have had to be R E P L A C E D](https://github.com/user-attachments/assets/efa7bec8-a249-47a6-ae6e-76227bd4a3a2)
 
