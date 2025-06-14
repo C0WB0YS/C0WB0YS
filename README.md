@@ -2,15 +2,15 @@
 ![Despite everything it's still you (1)](https://github.com/user-attachments/assets/47ef2e8f-2b96-4201-808c-07bf0c281606)
 
 ------------------------------------------------------------------------------------
-ELLERNATE / JOHN DOE + WHISKEY
+LIAM / JOHN DOE + WHISKEY
 
       yes i have tier 4, no i will not let you use it unless i am friends with you. 
 
-Ellernate + John Doe are preferred
+ Liam + Whiskey are preferred
 
 genderfluid ?? ;; lesbian
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Savate&size=75&pause=100&color=960808&vCenter=true&multiline=true&width=3800&height=400&lines=Suffering+is+all+anyone+will+ever+know...;Shouldn't+have+tried+to+get+rid+of+me.;You+took+the+fall%2C+now+you+take+the+blade.;Unfortunately%2C+this+is+the+end+of+the+line+for+you.+-+Ellernate%2C+Roblox+Hacker)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=500&color=A32AF7&multiline=true&width=435&height=200&separator=%3C&lines=You+KILLED+Me.%3CJust+because+i+was+replaced.%3CHell%2C+I+can't+even+remember+%3Cmy+own+brother+barely.%3C-+Liam+;+OC+Of+Mine.)](https://git.io/typing-svg)
 
 huge memory gaps, they are longterm. meaning i will not remember people or things sometimes
 
