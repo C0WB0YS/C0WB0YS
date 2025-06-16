@@ -16,7 +16,7 @@ huge memory gaps, they are longterm. meaning i will not remember people or thing
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=880808&label=HACKERS&style=for-the-badge)
 
-【  [IWC-DNI](https://docs.google.com/document/d/1wQQk5GOaFQ3m4uOyKjXkHOkHvSVAF80N3Ud8tFjtZ0M/edit?usp=sharing)  】　---- 【 [BYI/LOVEMAIL](https://docs.google.com/document/d/12m6SMlbFN6OrzZAYuHicgBv7BlPOUY9LkQa_D1JzFgw/edit?usp=sharing)   】　
+【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/626ekaa5)   】　
 
 ![A human being whose original human part have had to be R E P L A C E D](https://github.com/user-attachments/assets/efa7bec8-a249-47a6-ae6e-76227bd4a3a2)
 
