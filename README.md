@@ -1,22 +1,18 @@
 
-![Despite everything it's still you (1)](https://github.com/user-attachments/assets/47ef2e8f-2b96-4201-808c-07bf0c281606)
+![🟣🤝🟣](https://github.com/user-attachments/assets/3f6a434b-2bfe-4778-bacd-8b5f3839d4af)
 
 ------------------------------------------------------------------------------------
-LIAM / JOHN DOE + WHISKEY
 
-      yes i have tier 4, no i will not let you use it unless i am friends with you. 
+liam / / whiskey
 
- Liam + Whiskey are preferred
+  genderfluid + lesbian
 
-genderfluid ?? ;; lesbian
+i am the owner of liam aka my persona, do not copy him as he is my comfort oc.
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=500&color=A32AF7&multiline=true&width=435&height=200&separator=%3C&lines=You+KILLED+Me.%3CJust+because+i+was+replaced.%3CHell%2C+I+can't+even+remember+%3Cmy+own+brother+barely.%3C-+Liam+;+OC+Of+Mine.)](https://git.io/typing-svg)
 
-huge memory gaps, they are longterm. meaning i will not remember people or things sometimes
-
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=880808&label=HACKERS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=880808&label=ROBOTS&style=for-the-badge)
 
 【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/626ekaa5)   】　
 
-![A human being whose original human part have had to be R E P L A C E D](https://github.com/user-attachments/assets/efa7bec8-a249-47a6-ae6e-76227bd4a3a2)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=500&color=A32AF7&multiline=true&width=435&height=200&separator=%3C&lines=You+KILLED+Me.%3CJust+because+i+was+replaced.%3CHell%2C+I+can't+even+remember+%3Cmy+own+brother+barely.%3C-+Liam+;+OC+Of+Mine.)](https://git.io/typing-svg)
