@@ -10,7 +10,7 @@ liam / / whiskey
 i am the owner of liam aka my persona, do not copy him as he is my comfort oc.
 
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=880808&label=ROBOTS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=DF00FF&label=ROBOTS&style=for-the-badge)
 
 【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/626ekaa5)   】　
 
