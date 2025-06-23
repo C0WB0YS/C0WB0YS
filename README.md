@@ -8,6 +8,7 @@
 
 
 
+
 > Hi! I'm Liam, Whiskey or Charles/Superman, I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
 >
 > I am always on IDLE/BUSY Depending on how i am feeling that day. Otherwise i will have DNI/DNIUF/DNIUC In my name.
