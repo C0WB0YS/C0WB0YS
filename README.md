@@ -13,6 +13,9 @@
 >
 > I am always on IDLE/BUSY Depending on how i am feeling that day. Otherwise i will have DNI/DNIUF/DNIUC In my name.
 
+![ke2xab](https://github.com/user-attachments/assets/e91754fe-ff4a-4029-aeb4-fa513531322b) ![3651yj](https://github.com/user-attachments/assets/0ab8ba66-fce1-4ef0-9ee6-dc88df3b1417)
+
+
 
 > WHAT DOES DNI/DNIUF/DNIUC MEAN?: Do not interact, Do not interact unless close and do not interact unless friend! Just means someone does not want to be interacted with at all or specific people!
 >
