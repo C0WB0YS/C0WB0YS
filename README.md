@@ -7,7 +7,7 @@
    
 
 
-
+" DO NOT FALL FOR PROPAGANDA, EMBRACE RED DEAD REDEMPTION TWO. "
 
 > Hi! I'm Liam, Whiskey or Charles/Superman, I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
 >
