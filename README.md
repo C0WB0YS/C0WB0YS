@@ -10,7 +10,9 @@
 " DO NOT FALL FOR PROPAGANDA, EMBRACE RED DEAD REDEMPTION TWO. "
 
 > Hi! I'm Liam, Whiskey or Charles/Monster, I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
->
+
+> TAKEN BY THE LOML, Z. DO NOT FLIRT WITH ME PLATONICALLY UNLESS CLOSE.
+
 > I am always on IDLE/BUSY Depending on how i am feeling that day. Otherwise i will have DNI/DNIUF/DNIUC In my name.
 
 ![ke2xab](https://github.com/user-attachments/assets/e91754fe-ff4a-4029-aeb4-fa513531322b) ![3651yj](https://github.com/user-attachments/assets/0ab8ba66-fce1-4ef0-9ee6-dc88df3b1417)
