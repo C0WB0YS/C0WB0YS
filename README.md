@@ -30,7 +30,7 @@
 
 > I am a huge kin of Charles from RDR2, I cannot play the game due to no way of playing it and it is not free on the platform i play on.
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=COWBOYS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=ROULETTES&style=for-the-badge)
 
 【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/626ekaa5)   】　
 
