@@ -11,6 +11,8 @@
 PROJECT 3 - 4 | | THE CREATION OF SOMETHING GREATER.
 
 > Hi! I'm Liam, Or 34/Project. I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
+>
+> I am very protective over my fixations, And i do not like to share sometimes. Though i will keep it to myself ! ^_^ My current fixations are: Chance, My OC, Project 1934 ( oc ), Master Chief, And Guest1337.
 
 > TAKEN BY THE LOML, Z. DO NOT FLIRT WITH ME PLATONICALLY UNLESS CLOSE.
 
