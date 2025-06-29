@@ -8,9 +8,9 @@
    
 
 
-" DO NOT FALL FOR PROPAGANDA, EMBRACE RED DEAD REDEMPTION TWO. "
+PROJECT 3 - 4 | | THE CREATION OF SOMETHING GREATER.
 
-> Hi! I'm Liam, Whiskey or Charles/Monster, I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
+> Hi! I'm Liam, Or 34/Project. I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
 
 > TAKEN BY THE LOML, Z. DO NOT FLIRT WITH ME PLATONICALLY UNLESS CLOSE.
 
