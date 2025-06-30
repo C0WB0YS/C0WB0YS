@@ -14,7 +14,7 @@ PROJECT 3 - 4 | | THE CREATION OF SOMETHING GREATER.
 >
 > I am very protective over my fixations, And i do not like to share sometimes. Though i will keep it to myself ! ^_^ My current fixations are: Chance, My OC, Project 1934 ( oc ), Master Chief, And Guest1337.
 
-> TAKEN BY THE LOML, Z. DO NOT FLIRT WITH ME PLATONICALLY UNLESS CLOSE.
+> TAKEN BY THE PERSON I LOVE MOST AND FOREVER, SCRUFFY ! :3
 
 > I am always on IDLE/BUSY Depending on how i am feeling that day. Otherwise i will have DNI/DNIUF/DNIUC In my name.
 
