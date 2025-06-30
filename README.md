@@ -34,7 +34,7 @@ PROJECT 3 - 4 | | THE CREATION OF SOMETHING GREATER.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=ROULETTES&style=for-the-badge)
 
-【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/626ekaa5)   】　
+【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/i8nvkumi)   】　
 
 
 > For the love of god, Please do not mention my trauma to me if you know what it is. It will make me uncomfy and i will hide you ! ^_^
