@@ -8,9 +8,9 @@
    
 
 
-PROJECT 1 - 9 - 3 - 4 | | THE VOICES INSIDE OF YOUR HEAD.
+void star - - its greatest power.
 
-> Hi! I'm Liam, Or Vincent. I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV.
+> Hi! I'm Liam, Or Noli. I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV. -- I prefer to go by Noli.
 >
 > I am very protective over my fixations, And i do not like to share sometimes. Though i will keep it to myself ! ^_^ My current fixations are: Chance, My OC, Project 1934 ( oc ), Master Chief, And Guest1337.
 
