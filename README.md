@@ -1,6 +1,4 @@
-
-![Untitled1105_20250624190814](https://github.com/user-attachments/assets/a880eb5a-5fa9-4125-a7ad-87ac3326e5ef)
-
+![Untitled3_20250702232147](https://github.com/user-attachments/assets/df92f333-b346-4abb-b201-7abab274c56e)
 
 
   <p align="center">
@@ -9,6 +7,8 @@
 
 
 void star - - its greatest power.
+
+fakers dni - - noli irl
 
 > Hi! I'm Liam, Or Noli. I use fictkins on the daily along with coping links so i may NOT be myself but i will likely have a indicator in my name ! regarding that, i am also burnt out with typing sometimes so i may go NV. -- I prefer to go by Noli.
 >
