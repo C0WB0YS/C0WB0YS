@@ -18,7 +18,7 @@ fakers dni - - noli irl
 
 > I am always on IDLE/BUSY Depending on how i am feeling that day. Otherwise i will have DNI/DNIUF/DNIUC In my name.
 
-![ke2xab](https://github.com/user-attachments/assets/e91754fe-ff4a-4029-aeb4-fa513531322b) ![3651yj](https://github.com/user-attachments/assets/0ab8ba66-fce1-4ef0-9ee6-dc88df3b1417)
+![ke2xab](https://github.com/user-attachments/assets/e91754fe-ff4a-4029-aeb4-fa513531322b)![e0bnb9](https://github.com/user-attachments/assets/4c283546-57d4-4456-8be5-4e28d29d9292)![8x81k3](https://github.com/user-attachments/assets/0ca91275-3ff8-4484-a07f-559f967170a0)
 
 
 
