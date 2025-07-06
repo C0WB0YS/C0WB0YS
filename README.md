@@ -1,4 +1,4 @@
-![Untitled3_20250702232147](https://github.com/user-attachments/assets/df92f333-b346-4abb-b201-7abab274c56e)
+![Untitled12_20250706095219](https://github.com/user-attachments/assets/7db69e39-3508-45fd-b3f1-5073d8c7cefc)
 
 
   <p align="center">
@@ -12,7 +12,7 @@ reworking a bit
 
 
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=FOLLOWERS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=HACKERS&style=for-the-badge)
 
 【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/i8nvkumi)   】　
 
