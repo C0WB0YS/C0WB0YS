@@ -12,7 +12,7 @@ reworking a bit
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=HACKERS&style=for-the-badge)
 
-【  [IWC-DNI](https://rentry.co/5oyasuuw)  】　---- 【 [BYI/LOVEMAIL](https://rentry.co/i8nvkumi)   】　
+【    】　
 
 
 
