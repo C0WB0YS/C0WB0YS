@@ -1,5 +1,3 @@
-![Untitled12_20250706095219](https://github.com/user-attachments/assets/7db69e39-3508-45fd-b3f1-5073d8c7cefc)
-
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
