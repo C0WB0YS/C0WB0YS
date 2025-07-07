@@ -6,6 +6,8 @@
 > usually dniuf, i need serious mental help so im getting it
 >
 > DO NOT SEND ME DEATH THREATS, I'VE GOTTEN ENOUGH OF THEM.
+>
+> dni toxichero
 
 
 
