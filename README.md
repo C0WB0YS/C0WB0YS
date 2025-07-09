@@ -8,6 +8,8 @@
 > DO NOT SEND ME DEATH THREATS, I'VE GOTTEN ENOUGH OF THEM.
 >
 > int toughluck fans
+>
+> dni tt/td/cd/ct -- ion like you guys sorry
 
 
 
