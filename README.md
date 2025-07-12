@@ -10,7 +10,7 @@
 
 > helloo!! im caleb244, oorrr elias -- uuuhh yah im 14, please iwecaution when inting with me as im not in the best mental state and currently in a mental health facility! but im overall nice trust i swear.
 >
-> do not send death threats to me at all, as i have been sent enough death threats already. yes im aware that i can't really stop it but i do not want those type of people inting with me. DNI REGIS AND REGI STAFF MEMBERS.
+> do not send death threats to me at all, as i have been sent enough death threats already. yes im aware that i can't really stop it but i do not want those type of people inting with me. DNI REGIS AND REGI STAFF MEMBERS. -- oh and scruffy, invalidating my death threats is wrong ! ^_^ and saying that im attention seeking is also wrong ! ^_^
 >
 > PLEASEEE interact if you like may madness, ink games, squid games, forsaken, etc!!!! I NEED FRONTMAN AHHHHHHHHHHHH i love him so muhc
 >
